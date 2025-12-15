@@ -9,3 +9,5 @@
 
 Suite à checkout, la modification a été enlevée. Je remets une nouvelle modification.
 Je suis sur la branche chocolat. Dans le thème des cookies, je ne suis pas trop dépaysée du coup.
+
+Mais qu'est ce que cette recette !?!
