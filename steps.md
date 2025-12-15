@@ -7,4 +7,4 @@
     Pour former les cookies, utiliser 2 cuillères à soupe et faire des petits tas espacés pour la cuisson.
     Enfourner pour 10 minutes de cuisson.
 
-Suite à checkout, la modification a été enlevée. Je remets une nouvelle modification.
+
