@@ -8,4 +8,3 @@
     Enfourner pour 10 minutes de cuisson.
 
 Suite à checkout, la modification a été enlevée. Je remets une nouvelle modification.
-Puisque le version est déjà à jour, j'ajoute une ligne.
