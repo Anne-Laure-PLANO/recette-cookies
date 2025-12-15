@@ -6,4 +6,8 @@
     Pour former les cookies, utiliser 2 cuillères à soupe et faire des petits tas espacés pour la cuisson.
     Enfourner pour 10 minutes de cuisson.
 
+
 Il y a trop de beurre...
+
+Mais qu'est ce que c'est que cette recette ! !!
+
